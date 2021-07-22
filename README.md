@@ -1,0 +1,1 @@
+Skills Python para empresa Nicasource
